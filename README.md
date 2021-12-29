@@ -1,1 +1,1 @@
-Bexultan Nurpeiis, 20y, SDU'22, iOS DEV.
+Bexultan Nurpeiis, 21y, SDU'22, iOS DEV.
